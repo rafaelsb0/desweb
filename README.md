@@ -1,1 +1,1 @@
-LOL !!11!
+SUA MÃE É MINHA,GAY
